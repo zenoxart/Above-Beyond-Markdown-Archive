@@ -1,0 +1,1 @@
+Jedes Lebewesen hat ein elektromagnetisches Feld. sozusagen sind Lebewesen komplexe Magnete, welche genauso auch durch die interne Chemie das Feld ändern können. Wenn diese Felder interagieren resultiert das in  Emotionskommunikation -> Hass, Liebe etc
